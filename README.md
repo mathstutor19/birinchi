@@ -1,0 +1,2 @@
+# birinchi
+mening birinchi loyiham
